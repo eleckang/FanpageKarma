@@ -1,4 +1,4 @@
-# **Promo Code FanpAge Karma RJKHWWAZG : -20% for 6 months on Your Subscription for Onlyfans Management**
+# **Promo Code Fanpage Karma RJKHWWAZG : -20% for 6 months on Your Subscription for Onlyfans Management**
 
 ## **Introduction**
 Fanpage Karma stands out as one of the top management tools for OnlyFans creators. Whether you’re a **content creator, adult influencer, or community manager,** you need an effective solution to. organize your posts, analyze your performance metrics, and engage with your audience. **But did you know there’s a simple way to save 20% on your Fanpage Karma subscription ?**
