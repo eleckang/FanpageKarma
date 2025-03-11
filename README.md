@@ -12,8 +12,10 @@ This guide walks you through **how to activate this offer in just a few clicks a
 
 ### **Steps to Apply the Promo Code :**
 
-1️⃣ **[Access the Fanpage Karma Promo Code](https://github.com/eleckang/FanpageKarma)** and log in or create an account.  
+1️⃣ **[Access the Fanpage Karma Promo Code](https://github.com/eleckang/FanpageKarma)** and log in or create an account.
+
 2️⃣ At checkout, **enter the code RJKHWWAZG** in the promo code field.
+
 3️⃣ **The 20% discount applies immediately**, and you will benefit from this advantage on the next 6 months.
 
 ### **Why is this promo code unique ?**
